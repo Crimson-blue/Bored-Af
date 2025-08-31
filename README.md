@@ -1,1 +1,1 @@
-just a scientific calc i made cuz i had nothing to do 
+I HATE MATHS WITH A FUCKING PASSION so for all of those heres some simple tool for it 
